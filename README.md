@@ -4,7 +4,7 @@
 - 📫 How to reach me 
 
 LinkedIn - Karmukilan Prakash
-Instagram - @karmu_prakash_12
+Instagram - @thekarfreak
 
 <!---
 karmukilan-12/karmukilan-12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
